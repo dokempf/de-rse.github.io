@@ -20,7 +20,8 @@ E-Mail: vorstand [at] de-rse.org
 
 ### Verantwortlich für den Inhalt nach § 55 Abs. 2 RStV
 
-Florian Thiery, Stephan Janosch, Frank Löffler, Bernadette Fritsch, Daniel Nüst, Stephan Druskat
+Jan Linxweiler, Frank Löffler, Stephan Janosch, Michael Meinl, Bernadette Fritsch, Jan Dietrich
+
 Quelle: [*eRecht24*](https://www.e-recht24.de)
 
 ## Datenschutzerklärung
